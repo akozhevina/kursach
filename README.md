@@ -1,3 +1,1 @@
 # kursach
-# kursach
-# kursach
